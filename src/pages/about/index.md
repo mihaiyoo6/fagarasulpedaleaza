@@ -14,7 +14,7 @@ title: Despre noi
 * > **Bunica**
   >
   > : Biciclistul care dacă nu avea bicicleta în perfectă stare de funcționare (după părerea lui), nu se urca pe ea, nici nu se uita la tine, mai bine mergea pe jos (cu spatele dacă era nevoie). Personajul care pe o coborâre de Transfăgărășan spunea că el nu se riscă, însă viteaza maximă la kilometraj înregistra 75 km/h și spunea că nu îi țin frânele (îl credeam pentru că de fiecare dată când frâna  era ca  un tren perosnal ce oprea într-o haltă), dar totuși menținea ritmul. Adeseori îl găseam cu o zi înainte de plecare undeva în spatele blocului “bibilind” bicicleta, ne miram că nu avea și manualul. Cel mai interesant lucru despre Bunica e că el nu a prea avut căzături, foarte stăpân pe situație.
-* > ** Rosi**
+* > **Rosi**
   >
   > : Biciclistul care credea că are motocicletă sub șa, la fiecare plecare de pe loc era într-o roată , fiecare viraj era abordat cât se putea de rapid (omul se vedea că muncește ) și fiecare linie dreaptă trebuia să aibe viteza maximă a vehiculului propulsat de pedale, dacă era norocos prindea și 53km/h, apoi era leșinat. Vestit pentru chiloții lui roz și pentru căzături…, multe. Credem că și acum mai cade când abordeaza un viraj, însă cea mai memorabilă a fost în Făgăraș la semafor cum faci stânga spre BCR, credem că și motocicliștii au fost impresionați de viteza de abordare  și probabil aruncătura peste ghidoane. Nu știm care sunt calitătile lui cu adevarat de biciclist, cert este că tot timpul a fost cu noi la “o pedală” .
 
