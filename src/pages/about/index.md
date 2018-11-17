@@ -4,6 +4,8 @@ title: Despre noi
 ---
 #### Făgărașul Pedalează suntem noi făgărășenii, care folosim bicicleta ca și utilitate (vehicul de navetă) sau de relaxare și sport. Am creat acest site din pasiune pentru mersul cu bicicletă, nu numai la servici dar și în zona superbă a Făgărașului, care chiar dacă nu are cele mai bune drumuri din România, conține una dintre cele mai spectaculoase forme de relief muntoase din ea.
 
+![FagarasulPedaleaza](/img/stema.jpg)
+
 ##### Noi cei care am creat site-ul, suntem următorii după poreclele noastre pe care le utilizăm când mergem pe bicicletă:
 
 * > **Şenilă**
